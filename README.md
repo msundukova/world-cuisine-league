@@ -5,8 +5,7 @@ Preparing for the social event for Bizkaia Talent International Community
 
 # About Mayya Sundukova
 
-Mayya Sundukova (She/Her) is a scientist and researcher in Biophysics and Neuroscience, originally from Russia. She moved to Bizkaia in the end of 2019 with her family to work at the Instituto Biofisika of the Basque Country. Mayya is experienced in making transitions and adopting new identities through years of life and research in different countries, including Russia and Italy. She also defines herself as a scimom (science mom), mobile researcher, mentor and enthusiast of performing arts. Currently, she is interested in mastering the practices for sharing knowledge in the community, connecting and empowering researchers.
-
+Mayya Sundukova (She/Her) is a scientist and researcher in Biophysics and Neuroscience, originally from Russia. She moved to Bizkaia at the end of 2019 with her family to work at the Instituto Biofisika of the Basque Country. Mayya is experienced in making transitions and adopting new identities through years of life and research in different countries, including Russia and Italy. She also defines herself as a science mom, mobile researcher, mentor, and performing arts enthusiast. Currently, she is interested in mastering the practices for sharing knowledge in the community, connecting and empowering researchers.
 
 # Russian (Soviet) recipe: a starter *Fish under a fur coat (aka Shuba)*
 it is a layered salad made of vegetables and pickeled herring
